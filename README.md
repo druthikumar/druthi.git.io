@@ -9,5 +9,5 @@ contact me if any queries
 
 
 
-my email id :
+contact me:
 druthikumar70@gmail.com
