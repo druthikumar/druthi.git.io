@@ -1,5 +1,5 @@
-Heloo am druthi
-from Tumkur.
+Hyy  am druthi
+from Tumkur..
 Enginner ❤️
 passion for coding
 information science 🔭 engineering 
@@ -9,5 +9,5 @@ contact me if any queries
 
 
 
-contact me:
+queries:
 druthikumar70@gmail.com
