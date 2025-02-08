@@ -1,4 +1,4 @@
-Hyy  am druthi
+tHyy  am druthi
 from Tumkur..
 Enginner ❤️
 passion for coding
@@ -8,6 +8,6 @@ Tumkur Karnataka India
 contact me if any queries 
 
 
-
+...,...,....,....,....,..,...,..,
 queries:
 druthikumar70@gmail.com
