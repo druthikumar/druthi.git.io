@@ -8,6 +8,6 @@ Tumkur Karnataka India
 contact me if any queries 
 
 
-...,...,....,....,....,..,...,..,
+...,...,....,..,....,..,...,..,
 queries:
 druthikumar70@gmail.com
