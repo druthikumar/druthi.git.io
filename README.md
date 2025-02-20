@@ -1,4 +1,4 @@
-tHyy  am druthi
+Am druthi
 from Tumkur..
 Enginner ❤️
 passion for coding
